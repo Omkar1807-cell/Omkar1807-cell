@@ -17,6 +17,6 @@
 - Artificial Intelligence & Machine Learning
 
 ## 📫 Connect With Me
-LinkedIn: Add your LinkedIn link here
+LinkedIn: www.linkedin.com/in/omkar-chopade-3bbab5385
 
 ⭐ Always learning and building new projects!
